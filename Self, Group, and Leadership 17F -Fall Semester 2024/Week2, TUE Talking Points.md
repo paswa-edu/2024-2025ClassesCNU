@@ -22,7 +22,7 @@ What kind of leadership did Parrado use?
 - He used a couple values to his advanatage. **Desperation, Convincing, and Infuence.**
 - The book however says he just convinced them, but I personally blieve that the desperation of the moment led them to tat final solution.
 
-**THERE IS NO SINGLE "CORRECT" DEFINITION OF LEADERSHIP"**
+**THERE IS NO SINGLE "CORRECT" DEFINITION OF LEADERSHIP**
 
 > [!NOTE]
 > Subordinate type leadership is essentially a type of leadership that expands downward into a hierarchical tree of relationships.
