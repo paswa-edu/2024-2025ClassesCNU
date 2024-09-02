@@ -18,3 +18,20 @@ I mostly agree with this statement, sometimes leaders are not always leaders in 
 * Ability to get results and build teams properly.
 * "Complex form of social problem solving"
 
+What kind of leadership did Parrado use?
+- He used a couple values to his advanatage. **Desperation, Convincing, and Infuence.**
+- The book however says he just convinced them, but I personally blieve that the desperation of the moment led them to tat final solution.
+
+**THERE IS NO SINGLE "CORRECT" DEFINITION OF LEADERSHIP"**
+
+> [!NOTE]
+> Subordinate type leadership is essentially a type of leadership that expands downward into a hierarchical tree of relationships.
+
+Cool question alert:
+> Why do we not want to cultivate leaders who make decisions off of "logical predictability"?
+
+Basically the book was saying that having emotion involved in leadership is very important because emotionally and rationally appealing to your followers will influence them much more to continue towards whatever goal is present.
+
+
+
+
