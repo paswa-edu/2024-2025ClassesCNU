@@ -36,5 +36,6 @@ Basically the book was saying that having emotion involved in leadership is very
 
 ![Image of some notes](image.png)
 
+Difference between managment and leadership
 
 
