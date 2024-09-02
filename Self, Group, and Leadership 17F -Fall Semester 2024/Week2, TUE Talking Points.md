@@ -32,6 +32,9 @@ Cool question alert:
 
 Basically the book was saying that having emotion involved in leadership is very important because emotionally and rationally appealing to your followers will influence them much more to continue towards whatever goal is present.
 
+> When someone is in a group, their actions may differ from when they are alone.
+
+![Image of some notes](image.png)
 
 
 
