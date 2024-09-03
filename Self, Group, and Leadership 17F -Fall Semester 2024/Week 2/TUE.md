@@ -55,5 +55,9 @@ This is a really nice quote. While the entire team may have the same goals, they
 **Thinking outside the box** is another great attribute of a leader. Being able to think abstractly.
 
 ## NOTES
-<img width="768" alt="Untitled" src="https://github.com/user-attachments/assets/d0d54a78-51e6-46f4-8da5-f49218f07480">
+> [!WARNING]
+> Leadership Triangle of death :(
+> <img width="768" alt="Untitled" src="https://github.com/user-attachments/assets/d0d54a78-51e6-46f4-8da5-f49218f07480">
+
+- Leadership involves soemthing happening as a result of the interation between leaders/followers.
 
