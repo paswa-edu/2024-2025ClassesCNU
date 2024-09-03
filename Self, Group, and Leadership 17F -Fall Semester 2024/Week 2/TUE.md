@@ -38,10 +38,10 @@ Basically the book was saying that having emotion involved in leadership is very
 
 Difference between managment and leadership
 
-## Message from Howard Schultz...
+## [Message from Howard Schultz...](https://stories.starbucks.com/press/2018/message-from-howard-schultz-to-partners-onward-with-love/)
 Howard really just says that being your best will bring the best out of others.
 
-## 7 Leadership Insights
+## [7 Leadership Insight](https://northwest.education/insights/career-growth/7-leadership-definitions-insights-impact-2023/)
 > "leadership is the ability to influence and guide others towards a common goal or vision"
 
 I've noticed that a lot of articles really push "leadership" as a group effort sort of thing. I really don't believe it has anything to do with a group, but the people individually. Sure someone can be a great leader, but if the others aren't too a leader in their own lives, they will never support the main leader.
