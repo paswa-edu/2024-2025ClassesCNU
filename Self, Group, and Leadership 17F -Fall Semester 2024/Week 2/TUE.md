@@ -38,4 +38,18 @@ Basically the book was saying that having emotion involved in leadership is very
 
 Difference between managment and leadership
 
+## Message from Howard Schultz...
+Howard really just says that being your best will bring the best out of others.
 
+## 7 Leadership Insights
+> "leadership is the ability to influence and guide others towards a common goal or vision"
+
+I've noticed that a lot of articles really push "leadership" as a group effort sort of thing. I really don't believe it has anything to do with a group, but the people individually. Sure someone can be a great leader, but if the others aren't too a leader in their own lives, they will never support the main leader.
+
+I also noticed they said **Leadership is the "ability" to influence others**. I actually believe this is a good way to show leadership as something that is deeply within everyone, but just needs to be refined.
+
+> "A leader is defined as setting a direction"
+
+This is a really nice quote. While the entire team may have the same goals, they may have different directions. Setting an ultimate direction to the goal is extremely important.
+
+**Thinking outside the box** is another great attribute of a leader. Being able to think abstractly.
