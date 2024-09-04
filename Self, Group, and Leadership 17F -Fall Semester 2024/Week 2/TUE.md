@@ -59,7 +59,11 @@ This is a really nice quote. While the entire team may have the same goals, they
 > Leadership Triangle of death :(
 > <img width="768" alt="Untitled" src="https://github.com/user-attachments/assets/d0d54a78-51e6-46f4-8da5-f49218f07480">
 
-- Leadership involves soemthing happening as a result of the interation between leaders/followers.
+- Leadership involves soemthing happening as a result of the interation between leaders/followers
 
-In
+In order to learn leadership, you cannot just study it, or sit around it. You must study it and condition/expose yourself to it.
+
+Mangaging Vs. Leader
+- Maintaining Vs. Developing
+
 
